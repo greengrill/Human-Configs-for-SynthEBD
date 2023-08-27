@@ -6,4 +6,4 @@ Credits:
 
 Piranha91--for creating SynthEBD
 
-veracruze--for their textures including EOS
+veracruze--for his textures including EOS
