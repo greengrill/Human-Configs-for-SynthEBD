@@ -10,6 +10,6 @@ veracruze--for his textures including EOS, Sunkiss, Marshmallow, Vera and DDG.
 
 ZhizhenCong--for the Zhizhen skin texture
 
-Novelyst--for Sapphire's Overhauled skin texture
+Novelyst--for Sapphire's Overhauled skin texture and Lucid Skin
 
 ilovevobla--for the original Sapphire's skin diffuses
