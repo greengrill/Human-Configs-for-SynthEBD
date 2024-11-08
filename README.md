@@ -15,3 +15,7 @@ Novelyst--for Sapphire's Overhauled skin texture and Lucid Skin
 ilovevobla--for the original Sapphire's skin diffuses
 
 SynHC & Viper--for Noble Elegance
+
+namida1126 & Emelkin--for Aesthetic skin
+
+Fireapple--for True North Maiden skin
