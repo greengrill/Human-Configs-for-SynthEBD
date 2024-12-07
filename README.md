@@ -19,3 +19,5 @@ SynHC & Viper--for Noble Elegance
 namida1126 & Emelkin--for Aesthetic skin
 
 Fireapple--for True North Maiden skin
+
+TheFriedTurkey--for Fried's Male and Female Skin
